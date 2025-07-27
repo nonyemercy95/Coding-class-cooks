@@ -15,3 +15,4 @@ Basmati rice, Tomatoes, Tomato paste, Bell peppers, Onions, Ginger, Garlic, Scot
 ### WHAT IT LOOKS LIKE
 
 ### WHAT YOU CAN ADD
+Vegetables, Plaintain
