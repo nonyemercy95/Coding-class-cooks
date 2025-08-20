@@ -13,6 +13,6 @@ Basmati rice, Tomatoes, Tomato paste, Bell peppers, Onions, Ginger, Garlic, Scot
 ### THE COOKING
 
 ### WHAT IT LOOKS LIKE
-
+Vibrant, Reddish Orange
 ### WHAT YOU CAN ADD
 Vegetables, Plaintain
