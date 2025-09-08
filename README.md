@@ -17,6 +17,7 @@ Basmati rice, Tomatoes, Tomato paste, Bell peppers, Onions, Ginger, Garlic, Scot
 
 ### WHAT IT LOOKS LIKE
 
+![jollof rice](image.png)
 Vibrant, Reddish Orange
 
 ### WHAT YOU CAN ADD
